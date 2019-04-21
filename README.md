@@ -1,7 +1,7 @@
 # hello-world
 Just a greeting you know.
 ---
-## May be I need to say something about myself.
+## Maybe I need to say something about myself.
 I’m born as a coward man, with many accidentally physical hurts mostly by my own carelessness in my childhood, which may behave as some possible reason of my character or not in my past. I used to be afraid of darkness, taking up physical challenges like climbing mountains without flat steps, and even sometimes speaking in front of the crowded. I’m always reflecting on such psychological events, which may be quite inevitable, turning out that it is concerned with complexes which are anchored in my unconsciousness, resulting from something oppressed, meaningless delusion which is alway different from the reality, and abundant imaginations and dreams, some of which make quite a difference to me. 
 
 From time to time, recently, I feel anxious about the future like many other college students or people in this era. But I also feel sometimes isolated, narrow-minded nihilistic and awkward, which run counter to my intuition, making me a little uncomfortable. I rather cannot accept some part of myself.
